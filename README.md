@@ -11,6 +11,6 @@ I'm Burcu, a Junior Data Analyst with a passion for transforming data into actio
 
 - LinkedIn: [Burcu Bıyık](https://www.linkedin.com/in/burcu-b%C4%B1y%C4%B1k-a75a551a0/)
 
-Feel free to reach me at burcubyk9@outlook.com.
+Feel free to reach me at burcubyk9@outlook.com
 
 Thank you!
